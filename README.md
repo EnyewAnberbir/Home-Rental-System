@@ -90,7 +90,7 @@ The system provides the necessary frontend and backend functionality to make it 
 4. Ephrem Shimles
 5. Birhanu Asmamaw
 6. Natnael Yimer
-7. Enyew Anberber
+7. Enyew Anberber - Email: enyewanb0000@gmail.com
 8. Kaleab Tibebu
 9. Natnael Dajene
 
